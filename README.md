@@ -6,7 +6,7 @@
 
 ## My resume 
 
-https://tall-pot-f9c.notion.site/Resume-9d4a4a1a73f446c1a2d29ac36c3caeca?pvs=4
+[https://tall-pot-f9c.notion.site/Resume-9d4a4a1a73f446c1a2d29ac36c3caeca?pvs=4](https://tall-pot-f9c.notion.site/Resume-of-developer-8946e1bbfe92481cb554396ab2d03d9b)
 
 ### Follow me
 
